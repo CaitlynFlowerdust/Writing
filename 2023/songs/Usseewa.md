@@ -183,3 +183,75 @@ Perfect for these mediocre and dull melodies.
 Shut up, shut up, shut your mouth!
 
 I think differently, so there is no problem! Just leave me be!
+
+**[Verse 2]**
+
+That said, I am an exemplary girl.
+
+So actually punching someone? No thank you!
+
+But if I pointed my muzzle of sharp words,
+
+To your head and fired, would that be okay?
+
+Ah! Wouldn't that be so insane? I just can't stop myself!
+
+Moaning and groaning, right until the day you die!
+
+My spirit twists into something of a sadist.
+
+**[Pre-Chorus]**
+
+I'm fucking tired!
+
+Pouring the drinks, over and over, filling the glasses so empty.
+
+Take out the skewer, so it's easier, for everyone to begin eating.
+
+Pay the check, ordering before all else.
+
+These are the unwritten social manner rules!
+
+**[Chorus]**
+
+Haa? Shut up, shut up, shut your mouth!
+
+Just close your stinking mouth, can't stand it anymore!
+
+The spokesperson for our age, is none other than me, do you fucking understand?!
+
+I'm just so damn fed up,
+
+Of all these rehashed, rephrased, pointless things, parodies!
+
+Shut up, shut up, shut your mouth!
+
+Why don't you just draw an X on that, fat, ugly ass face?!
+
+**[Bridge]**
+
+Shut up, shut up, shut your mouth.
+
+Shut up, shut up, shut your mouth.
+
+I am the one you call a fucking genius!
+
+**[Chorus]**
+
+Shut up, shut up, shut your mouth!
+
+I'm healthier than you fuckers seem to think!
+
+You are too fucking normal,
+
+To understand a fucked up person like me, perhaps?!
+
+Ahh, so fucking boring...
+
+How many times do I listen to your memories??
+
+Shut up, shut your fucking mouth!
+
+I might be as bad as all of you, but hey,
+
+I don't care, no, it's no problem, yeah!
