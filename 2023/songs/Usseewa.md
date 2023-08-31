@@ -167,6 +167,7 @@ Joining a company with pure spirit,
 These are the rules for us compliant workers!
 
 **[Chorus]**
+
 Haa? Shut up, shut up, shut your mouth!
 
 I'm healthier than most people like to think!
